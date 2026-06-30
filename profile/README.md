@@ -71,7 +71,7 @@ Website not converting? Improve the lodgify vacation rental website with clearer
 Reservations missing details? Check lodgify booking software fields, payment status, guest messages, and lodgify integrations that pass data between tools.  
 Still comparing tools? Use lodgify reviews, lodgify demo sessions, and lodgify alternatives research to confirm whether the workflow matches your rental business.
 
-![Lodgify rental workflow from website builder to booking system and channel manager](https://s3-alpha.figma.com/hub/file/6270501323/5e191077-2ae4-4ecb-b8e8-fbf7470325b1-cover.png)
+![Lodgify rental workflow from website builder to booking system and channel manager](https://yi-files.yellowimages.com/products/1931000/1931426/3094112-full.jpg)
 
 ## Related Search Terms
 
